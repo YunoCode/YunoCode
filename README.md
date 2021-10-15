@@ -1,6 +1,3 @@
 # hi
 
-i make games
-lego games
-dont ask why
-its fun ok
+im yuno. i make lego games.
